@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **bhavikbafna2030@gmail.com**
 
-- ⚡ Fun fact **I love Problem Solving and sharing knowledge with my peers and juniors**
+- ⚡ **I love Problem Solving and sharing knowledge with my peers and juniors**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
